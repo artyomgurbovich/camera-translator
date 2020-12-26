@@ -1,2 +1,2 @@
 # App preview:
-![](https://thumbs.gfycat.com/ShallowSnarlingArizonaalligatorlizard-size_restricted.gif)
+![](https://thumbs.gfycat.com/DirectWellgroomedDeviltasmanian-size_restricted.gif)
